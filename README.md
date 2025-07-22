@@ -1,0 +1,1 @@
+Welcome to KNet Consulting (Kalsnet Technologies), with 35+ years in Cybersecurity, AI, and emerging tech. We deliver secure, intelligent solutions for critical infrastructure, federal agencies, and enterprises, specializing in innovative, mission-focused system architectures.
